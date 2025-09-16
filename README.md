@@ -1,4 +1,4 @@
-# Alpha Legacy 🌟  
+# Alpha Legacy 👑 
 **Chatty & Giveaways! 🎁**  
 
 Welcome to **Alpha Legacy** – where the vibes are high, and the fun never stops! 🎉  
